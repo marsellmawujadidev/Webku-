@@ -1,2 +1,0 @@
-# Webku-
-ya begitulah 
